@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on risk modeling
 - 📫 How to reach me (walterabah)
 - 😄 Pronouns: he/him/his
-- ⚡ Fun fact: love learning something new
+- ⚡ Fun fact: I love jollof rice and can eat it 365/365😄
 
 <!---
 walterabah/walterabah is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
